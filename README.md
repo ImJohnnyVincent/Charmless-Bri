@@ -14,10 +14,10 @@
         &nbsp;&nbsp;
         Im quite talkative to please dont be afraid to talk to me or approach !!
 
-        
+        ꈍ◡ꈍ
 
      
 &nbsp;&nbsp;
 <p align="center"> <img width="320" height="100" alt="image" src=https://files.catbox.moe/gl2tfw.jpg /><p align="center"
 
- 
+ https://files.catbox.moe/43ilmv.jpg
