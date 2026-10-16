@@ -5,5 +5,5 @@
 
 &nbsp;&nbsp;
 
-<p align="center">
-https://files.catbox.moe/ruptmd.jpg
+<p align="center"> <img width="245" height="349" alt="image" src=https://files.catbox.moe/ruptmd.jpg /><p align="center"
+
