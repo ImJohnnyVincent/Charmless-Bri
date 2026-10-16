@@ -12,7 +12,7 @@
         &nbsp;&nbsp; I apologise for my strawpage being REALLY BUTT I need to remake it ! 
         <p align="center"> 
         &nbsp;&nbsp;
-        Im quite talkative to please dont be afraid to talk to me or approach !!
+        Im quite talkative so please dont be afraid to talk to me or approach !!
  <p align="center"> 
         &nbsp;&nbsp;               
 ꈍ◡ꈍ
