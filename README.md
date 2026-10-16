@@ -5,5 +5,5 @@
 
 &nbsp;&nbsp;
 
-<p align="center"> <img width="245" height="349" alt="image" src=https://files.catbox.moe/gl2tfw.jpg /><p align="center"
+<p align="center"> <img width="320" height="100" alt="image" src=https://files.catbox.moe/gl2tfw.jpg /><p align="center"
 
