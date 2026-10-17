@@ -5,11 +5,9 @@
 
 <p align="center"> <img width="320" height="100" alt="image" src=https://files.catbox.moe/gl2tfw.jpg /><p align="center"
 
+         
 <p align="center"> 
-        &nbsp;&nbsp;
-         Im a really big fan of both blur and oasis! very very big music lover..
-<p align="center"> 
-        &nbsp;&nbsp; I apologise for my strawpage being REALLY BUTT I need to remake it ! 
+        &nbsp;&nbsp; im newgen to all this so please be patient!! perchance sign my ata 👀
         <p align="center"> 
         &nbsp;&nbsp;
         Im quite talkative so please dont be afraid to talk to me or approach !!
