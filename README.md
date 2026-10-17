@@ -11,6 +11,8 @@
         <p align="center"> 
         &nbsp;&nbsp;
         Im quite talkative so please dont be afraid to talk to me or approach !!
+                <p align="center"> 
+        &nbsp;&nbsp;      the strawpage shown is my old one,, im working on a new one!
  <p align="center"> 
         &nbsp;&nbsp;               
 ꈍ◡ꈍ
